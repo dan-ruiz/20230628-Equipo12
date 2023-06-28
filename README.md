@@ -1,2 +1,2 @@
 # 20230628-Equipo12
-Daniel Ruiz
+Daniel Ruiz-Karlita Vasquez
